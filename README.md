@@ -1,0 +1,1 @@
+# efficiency-of-polytetrafluoroethylene-modified-silica-hydrosols-coated-solar-panels-by-using-ANN
